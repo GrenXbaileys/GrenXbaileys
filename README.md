@@ -4,7 +4,7 @@
 
 <p align="center">
 
-  <img src="https://files.catbox.moe/i497x5.jpg" width="180" alt="GrenXbaileys"/>
+  <img src="https://ganga--link--ghhzdp9sv8hk.code.run/i/6r8d73n1.jpg" width="180" alt="GrenXbaileys"/>
 
 </p>
 
